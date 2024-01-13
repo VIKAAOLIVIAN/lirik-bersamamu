@@ -1,1 +1,1 @@
-# lirik-bersamamu
+thank you
