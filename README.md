@@ -1,1 +1,1 @@
-thank you
+ https://vikaaolivian.github.io/lirik-bersamamu/
